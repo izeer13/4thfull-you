@@ -1,3 +1,3 @@
 # 4thfull-you
-physics2
+Hallo! I'm John Izeer Cruz, a first year electronics engineering 
 
